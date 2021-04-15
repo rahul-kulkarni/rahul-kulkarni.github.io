@@ -1,1 +1,0 @@
-# rahul-kulkarni.github.io
